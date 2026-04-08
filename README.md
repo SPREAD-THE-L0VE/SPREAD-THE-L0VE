@@ -6,3 +6,13 @@
 
 ![IMG_1599](https://github.com/user-attachments/assets/61e81f56-f4d7-4f6e-ad9b-1b5f58869641)
  ‎ ‎‎‎‎𝐜 * 𝐡 and 𝐛𝐨𝐨𝐩 freely !
+
+<details>
+<summary> 𝐈𝐧𝐟𝐨 !</summary>
+<div align="center">
+<br>
+
+![IMG_1601](https://github.com/user-attachments/assets/7347e1d8-7e2a-46fb-957d-d87c8df23a78)
+ ‎ ‎‎‎‎This is currently a wip...
+
+ 
